@@ -17,3 +17,7 @@ i am free to interact,,, i love it,, plz INT!!!
 i have pretty rude humour so dont b afriad to be rude back! idm
 
 sorry if its awkward talking to me, thats just how it is. plz b patient w mee!
+
+——————————————————————————
+
+this is NOT done ATALL LMAOOO jst a rough draft for now until i learn how to code,,,,
