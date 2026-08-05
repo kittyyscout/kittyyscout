@@ -1,6 +1,3 @@
-## meow {^3^]
-
-
 `hes stupid pretty hes pretty stupid!!!!`
 
 i am alan BUT U DINT GET TO CALL ME THAT. ***call me whatever other names are in my prn.cc***
