@@ -2,6 +2,8 @@
 
 i am alan BUT U DINT GET TO CALL ME THAT. ***call me whatever other names are in my prn.cc***
 
+if u think im kewl feel free to add me on discor! @kittyyscout :3
+
 # (kin and yume!!!!)
 
 **dbls dniiii /selective sharing. i get jealous. [ask for kins n yumes or check strwpg/prn.cc)** or dont if i have fictkin or f/o on a pony
