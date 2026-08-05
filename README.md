@@ -2,7 +2,7 @@
 
 i am alan BUT U DINT GET TO CALL ME THAT. ***call me whatever other names are in my prn.cc***
 
-if u think im kewl feel free to add me on discor! @kittyyscout :3
+if u think im kewl feel free to add me on discord! @kittyyscout :3
 
 # (kin and yume!!!!)
 
@@ -18,7 +18,8 @@ i am free to interact,,, i love it,, plz INT!!!
 
 i have pretty rude humour so dont b afriad to be rude back! idm
 
-sorry if its awkward talking to me, thats just how it is. plz b patient w mee!
+sorry if its awkward/ cringe talking to me, thats just how it is. plz b patient w mee!
+n if u cant match my freak,, dni /hj
 
 ——————————————————————————
 
