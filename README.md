@@ -19,6 +19,8 @@ n if u cant match my freak,, dni /hj
 
 **dbls dniiii /selective sharing. i get jealous. [ask for kins n yumes or check strwpg/prn.cc)** or dont if i have fictkin or f/o on a pony
 
+![](https://komarev.com/ghpvc/?username=kittyyscout&color=ff0582)
+
 ——————————————————————————
 
 this is not done ATALL LMAOOO jst a rough draft for now until i learn how to code,,,, whicu will b never,,,
