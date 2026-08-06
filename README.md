@@ -1,6 +1,6 @@
 `hes stupid pretty hes pretty stupid!!!!`
 
-i am alan BUT U DINT GET TO CALL ME THAT. ***call me whatever other names are in my prn.cc***
+i am alan BUT U DINT GET TO CALL ME THAT. ***call me whatever other names are in my prn.cc*** <my prn.cc + strwpg r in my linktree>
 
 if u think im kewl feel free to add me on discord! @kittyyscout :3
 
