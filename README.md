@@ -9,7 +9,7 @@
 
 <sup>iwcare⠀ ⠀ ⠀nonsharing yume⠀ doubles dni</sup>
 
-<sup>CxH dncover ; *awkward/ CRINGE/ rude* ; dont make weird jokes</sup>
+<sup>cxh dncover ; *awkward/ CRINGE/ rude* ; dont make weird jokes</sup>
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ <ins>**I⠀BLOCK⠀FREELY**</ins>
 
