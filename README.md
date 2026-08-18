@@ -23,5 +23,3 @@
 ⠀ ⠀ ⠀ ⠀ ⠀
 
 <sup>stole these graphics from doktoruber-archive on tumblr</sup>
-
-<sub>darkmode on!</sub>
