@@ -2,9 +2,9 @@
 
 ![scout](https://64.media.tumblr.com/1b17c61c75f4084efc574403377be5a7/b95c261490d6b6a8-19/s1280x1920/dc10a28052f2c51d23165fecfa5b39431734f386.pnj)
 ⠀ ⠀⠀[rentry](https://rentry.co/kittyyscout)
-⠀ ⠀ ⠀ ⠀ ⠀[prn.cc](https://pronouns.cc/@kittyyscout)
-⠀ ⠀ ⠀ ⠀ ⠀[straw](https://kittyyscout.straw.page)
-
+ ⠀ ⠀  [prn.cc](https://pronouns.cc/@kittyyscout)
+ ⠀ ⠀  [straw](https://kittyyscout.straw.page)
+⠀  ⠀  [guns](https://guns.lol/kittyyscout)
 ⠀
 
 <sup>iwcare⠀ ⠀ ⠀nonsharing yume⠀ doubles dni</sup>
