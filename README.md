@@ -7,10 +7,26 @@
 ⠀  ⠀  [guns](https://guns.lol/kittyyscout)
 ⠀
 
-<sup>iwcare⠀ ⠀ ⠀nonsharing yume⠀ doubles dni</sup>
 
-<sup>cxh dncover ; *awkward/ CRINGE/ rude* ; w2i my messages are off</sup>
 
+<details><summary>status</summary>
+
+<sup>iwcare **cxh** <ins>dncover</ins>⠀;⠀*w2i my messages are off*⠀;⠀awkward/ CRINGE/ rude</sup>
+
+</details>
+
+
+
+<details><summary>kins</summary>
+
+ morty smith [like every dimension] - doubles INT!!!!
+ 
+ jerry smith - unsure
+ 
+ jeremy willis - doubles dni pls
+
+ </details>
+ 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ <ins>**I⠀BLOCK⠀FREELY**</ins>
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ <sup>check⠀⠀linktree for more⠀tidbits and⠀ ⠀swag</sup>
