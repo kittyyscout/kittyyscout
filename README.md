@@ -19,7 +19,9 @@
 
 <details><summary>kins</summary>
 
- morty smith [like every dimension] - doubles INT!!!!
+ morty smith [every dimension] - doubles INT!!!!
+<sup> specific mortys are supermortyfan morty and mindy <3 </sup>
+
  
  jerry smith - unsure
  
