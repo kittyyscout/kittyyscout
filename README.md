@@ -19,21 +19,22 @@
 
 <details><summary>kins</summary>
 
- morty smith [every dimension] - doubles INT!!!!
-<sup> specific mortys are supermortyfan morty and mindy <3 </sup>
- 
- jerry smith - unsure
- 
- jeremy willis - doubles dni pls
+<sup>morty smith [every dimension] - doubles INT!!!!</sup>
 
- vriska serket - idk
+<sup>*specific mortys are supermortyfan morty and mindy <3*</sup>
+ 
+ <sup>jerry smith - unsure</sup>
+ 
+ <sup>jeremy willis - doubles dni pls</sup>
+
+ <sup>vriska serket - idk</sup>
 
  </details>
 
 
 <details><summary>yumes</summary>
 
-equius zahhak - ehhh idk
+<sup> equius zahhak - ehhh idk
 
 blu scout - nonsharing
 
@@ -45,7 +46,7 @@ evil morty - nonsharing
 
 gucci morty - nonsharing
 
-miami morty - sharing
+miami morty - sharing </sup>
 
 </details>
 
