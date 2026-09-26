@@ -21,13 +21,34 @@
 
  morty smith [every dimension] - doubles INT!!!!
 <sup> specific mortys are supermortyfan morty and mindy <3 </sup>
-
  
  jerry smith - unsure
  
  jeremy willis - doubles dni pls
 
+ vriska serket - idk
+
  </details>
+
+
+<details><summary>yumes</summary>
+
+equius zahhak - ehhh idk
+
+blu scout - nonsharing
+
+engie - hypersharing!!!!!!!!
+
+miss pauling - idk
+
+evil morty - nonsharing
+
+gucci morty - nonsharing
+
+miami morty - sharing
+
+</details>
+
  
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ <ins>**I⠀BLOCK⠀FREELY**</ins>
 
