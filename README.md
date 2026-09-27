@@ -34,19 +34,19 @@
 
 <details><summary>yumes</summary>
 
-<sup> equius zahhak - ehhh idk
+<sup>equius zahhak - ehhh idk</sup>
 
-blu scout - nonsharing
+<sup>blu scout - nonsharing</sup>
 
-engie - hypersharing!!!!!!!!
+<sup>engie - hypersharing!!!!!!!!</sup>
 
-miss pauling - idk
+<sup>miss pauling - idk</sup>
 
-evil morty - nonsharing
+<sup>evil morty - nonsharing</sup>
 
-gucci morty - nonsharing
+<sup>gucci morty - nonsharing</sup>
 
-miami morty - sharing </sup>
+<sup>miami morty - sharing </sup>
 
 </details>
 
